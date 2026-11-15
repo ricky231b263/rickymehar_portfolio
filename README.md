@@ -1,1 +1,0 @@
-# rickymehar_portfolio
